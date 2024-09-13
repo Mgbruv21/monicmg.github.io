@@ -1,2 +1,2 @@
-# monicmg.github.io
-About Me IT 105 Project
+Michael Monica
+Student, Juniata College
